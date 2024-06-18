@@ -1,9 +1,9 @@
-# Young and dumb Chinese new programmer
+# New Chinese programming prodigy
 
-Diamond 3 League of legends (Keyboard warrior)
+Video game chinese tryhard
 
-## Mokoto Yuki from persona 3 is me fr
+## shaolin monk
 
-- Eats rice everyday
-- Shoots myself to summon persona
-
+- Chinese hostage
+- A+ Asian
+- Mastered spiritual energey
