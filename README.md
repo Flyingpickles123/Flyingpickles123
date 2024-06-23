@@ -2,7 +2,7 @@
 
 Video game chinese tryhard
 
-## shaolin monk
+## Keyboard warrior
 
 - Chinese hostage
 - A+ Asian
