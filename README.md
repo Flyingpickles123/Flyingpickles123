@@ -1,9 +1,9 @@
 # New Chinese programming prodigy
 
-Video game chinese tryhard
+Rank 1 Temu worker
 
 ## Keyboard warrior
 
 - Chinese hostage
 - A+ Asian
-- Mastered spiritual energey
+- Random
