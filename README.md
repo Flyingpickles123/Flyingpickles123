@@ -1,9 +1,11 @@
 # New Chinese programming prodigy
 
-Rank 1 Temu worker
+Temu 200 years work experience
 
 ## Keyboard warrior
 
 - Chinese hostage
 - A+ Asian
-- Random
+- Diamond ranked league of legends player
+- 20iq
+- failing school
