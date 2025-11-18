@@ -1,11 +1,12 @@
-# New Chinese programming prodigy
+# Struggling Compsci student
 
-Temu 200 years work experience
+Lazy and not inteliigent
 
-## Keyboard warrior
+## skills
 
-- Chinese hostage
-- A+ Asian
-- Diamond ranked league of legends player
-- 20iq
-- failing school
+- Complaining
+- Wasting time
+- Failing school
+- Making excuses
+- giving up
+- hanging myself
